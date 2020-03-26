@@ -1,2 +1,6 @@
 # hello-world
-here we go again
+
+HI,
+
+I dont know shit right now!
+But i will!.......
